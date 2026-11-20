@@ -60,4 +60,4 @@ error instead of shipping a broken entry.
 ## Links
 
 - Bounty: https://make.fun/bounty/gta6-meme-x-01
-- The post: (link added at submission)
+- The post: https://x.com/haidildariell/status/2123759834550210998
